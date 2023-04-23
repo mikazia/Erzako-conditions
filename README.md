@@ -7,7 +7,7 @@ Merci de les respecter,et de les lires attentivement pour une meilleure expérie
 Merci de naviguer dans "view code" pour lire les conditions et la politique de confidentialité
 💚💚💕💖💕💚💕💖💕💖💕💚💕
 
-Merci beaucoup pour vos utilisationd de erzako sur vos serveurs :)
+Merci beaucoup pour vos utilisations de erzako sur vos serveurs :)
 💕💕💗💕💗💕💗💕🎉🎉💕🎉💕
 
 Les conditions sont là pour pas que vous fassiez des choses regrettables,
